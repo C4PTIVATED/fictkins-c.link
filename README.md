@@ -1,5 +1,5 @@
 # fict/kins
-Me ; Sleepmask , Mera Salamin epithet erased
-<p>high kin ; Ketchup aib , Mic ii , Seven xfohv , Blaze Sonic
-<p>medium kin ; Guava ii , Platinum ppt2
-<p>low kin ; Antimatter aib , Needle bfdi 
+Me ; Sleepmask , Mera Salamin Epithet erased ,  Blaze Sonic
+<p>high kin ; Ketchup Aib , Mic ii , Seven Xfohv
+<p>medium kin ; Guava ii , Platinum Ppt2
+<p>low kin ; Antimatter Aib , Needle Bfdi 
