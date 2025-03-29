@@ -2,6 +2,7 @@
 <p align="center"><img src="https://en.bloggif.com/tmp/65728fa1eda42049a5295733ca087199/text.gif?1742462608" width="100">
 <p align="center"><img src="https://github.com/user-attachments/assets/15c399d6-767b-433b-a955-54f90523eed5" width="100"><img src="https://github.com/user-attachments/assets/d73f98c5-407c-4d08-8297-161c98002c51" width="100"><img src="https://github.com/user-attachments/assets/bbce2272-233e-4be0-ab7b-6e42d4b20e49" width="100"> 
 <img src="https://github.com/user-attachments/assets/3019ef3b-7015-41ca-a4cd-bfc1d405d3e1" width="100">
+<img src="https://github.com/user-attachments/assets/08a29f75-b7df-4e60-acaa-03e062bd2645" width="100">
 <p align="center">+ Cassio from Othello (Shakespeare play)
 <p> 
 <p align="center"><img src="https://en.bloggif.com/tmp/65728fa1eda42049a5295733ca087199/text.gif?1742462817" width="200">
